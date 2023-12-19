@@ -25,7 +25,3 @@ Got questions, feedback, or just want to say hello? Feel free to reach out to us
 - Website: [Your Website URL]
 
 Thank you for your interest in 5th Ave Studios! Join us on this journey as we bring our creative visions to life.
-
----
-
-Feel free to personalize it further with your team member names, roles, and any additional information about your games or contact details!
